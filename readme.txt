@@ -48,3 +48,6 @@ Tiktok emo :: Keep Riding Me - by ur pretty
 This post has the word 'emo' in it 25 times. Now 26 lolol
 
 -ari
+
+
+https://open.spotify.com/playlist/4JxuoDU1Jrsm54dNFSrn1a?si=46c5f98992d94654
